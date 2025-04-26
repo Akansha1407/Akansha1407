@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on improving my skills in cybersecurity and penetration testing.<br><br>🌱 I’m currently learning advanced cybersecurity tools and Kali Linux.<br><br>👯 I’m looking to collaborate on cybersecurity projects and open-source contributions.<br><br>🤔 I’m looking for help with gaining more hands-on experience in real-world penetration testing scenarios.<br><br>💬 Ask me about cybersecurity basics, Kali Linux tools, or anime recommendations!<br><br> <br>😄 Pronouns: she/her<br><br>⚡ Fun fact: I love watching anime late at night!
+🔭 I’m currently working on improving my skills in cybersecurity and penetration testing.<br><br>🌱 I’m currently learning advanced cybersecurity tools and Kali Linux.<br><br>👯 I’m looking to collaborate on cybersecurity projects and open-source contributions.<br><br>🤔 I’m looking for help with gaining more hands-on experience in real-world penetration testing scenarios.<br><br>💬 Ask me about cybersecurity basics, Kali Linux tools, or anime recommendations!<br><br><br>😄 Pronouns: she/her<br><br>
 
 
 ## 🌐 Socials:
